@@ -52,7 +52,7 @@ Here’s what I’m currently using and exploring:
 ### 📬 Let's Connect!
 
 Let’s chat, collaborate, or share ideas!  
-- 📧 **micailamarie.villar@gmail.com**  
+- 📧 **villar.micailamarie@gmail.com**  
 - 💼 [LinkedIn](https://linkedin.com/in/your-profile)
 
 ---
