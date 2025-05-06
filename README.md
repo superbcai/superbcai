@@ -45,7 +45,7 @@ Here’s what I’m currently using and exploring:
 ### 💼 Experience
 
 - 💼 **Webmaster Associate** – *Innovamed Industries* (April 2025 – Present)  
-- 💡 **IT Intern** – *PASIA (Procurement and Supply Institute of Asia)* (Feb – April 2025)
+- 💡 **IT Intern** – *PASIA (Procurement and Supply Institute of Asia)* (February 2025 – May 2025)
 
 ---
 
